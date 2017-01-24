@@ -45,3 +45,4 @@
 - [Joan Chong](http://joanx.com/)
 - [Robby Leonardi](http://www.rleonardi.com/)
 - [Bell Brothers](http://bellbros.com/)
+- [Georg fischer](https://fishnation.de/)
